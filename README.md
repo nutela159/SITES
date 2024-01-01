@@ -1,2 +1,0 @@
-# nude
-girl
